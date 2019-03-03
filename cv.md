@@ -1,4 +1,4 @@
-**### Assyl Akhayev**
+### **Assyl Akhayev**
 
 **Contacts:** 
 * Phone: 8 776 417 33 87
